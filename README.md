@@ -1,0 +1,1 @@
+Osoby: Mikołaj Kulig
